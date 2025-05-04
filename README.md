@@ -1,11 +1,18 @@
-https://tenor.com/view/metalocalypse-mtl-charles-charles-offdensen-charles-foster-offdensen-gif-2095709303218791613
+
+![metalocalypse-mtl](https://github.com/user-attachments/assets/7cdf2554-295c-4462-bf67-9d208fedff28)
+
+
 - Hi my name is Niko
 - check my links for more info
 - SIGN MY ATA AND DRAW ON MY STRAWPAGE NEEEOOWWW! (Pretty please with a cherry on top)"
 
-https://tenor.com/view/metalocalypse-charles-offdensen-eye-rub-why-take-off-glasses-gif-17536523
+
+![metalocalypse-charles-offdensen](https://github.com/user-attachments/assets/ce619eb6-e589-450f-a1d6-44d801ed22f7)
 - TO MAKE IT CLEAR: proshippers, comshippers, darkshippers, "fiction isn't reality", loli/shotacons, "lesboys", TCC. etc, you bunch, do NOT interact
-https://tenor.com/view/metalocalypse-dethklok-oh-my-goodness-gracious-charles-charles-foster-offdenson-gif-290090286203708946
+
+Yay
+![metalocalypse-dethklok](https://github.com/user-attachments/assets/49e31902-9133-4ef8-b91f-949ac6d79387)
+
 
 
 
