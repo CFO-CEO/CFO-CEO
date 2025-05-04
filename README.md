@@ -2,9 +2,10 @@
 ![metalocalypse-mtl](https://github.com/user-attachments/assets/7cdf2554-295c-4462-bf67-9d208fedff28)
 
 
-- Hi my name is Niko
+- hi my name is Niko
 - check my links for more info
 - SIGN MY ATA AND DRAW ON MY STRAWPAGE NEEEOOWWW! (Pretty please with a cherry on top)"
+- please be 16+ to add me
 - ------------------------------------------------------------------------------------------------------
 
 ![metalocalypse-charles-offdensen](https://github.com/user-attachments/assets/ce619eb6-e589-450f-a1d6-44d801ed22f7)
