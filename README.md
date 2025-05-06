@@ -14,6 +14,11 @@
  Yay
 
 ![metalocalypse-dethklok](https://github.com/user-attachments/assets/49e31902-9133-4ef8-b91f-949ac6d79387)
+- ------------------------------------------------------------------------------------------------------
+Btw this is Me and faggot
+![8qg8lvm0](https://github.com/user-attachments/assets/764937c8-cb39-4e37-804c-5fb2c1a45f30)
+
+
 
 
 
