@@ -10,7 +10,8 @@ reminder that the new rules are BS and it'll probably take about a year to get t
 - ------------------------------------------------------------------------------------------------------
 Btw this is Me and faggot
 
-![image](https://github.com/user-attachments/assets/d3a147c0-a723-458b-875a-43a575290384) ![image](https://github.com/user-attachments/assets/792ba9c7-79cd-46db-9f8a-bba82439e78f)
+![image](https://github.com/user-attachments/assets/d3a147c0-a723-458b-875a-43a575290384) ![image](https://github.com/user-attachments/assets/f9cd1ad7-065f-4c2a-bc28-4bbc67150c44)
+
 
 
 
