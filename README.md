@@ -5,6 +5,7 @@
 
 - ------------------------------------------------------------------------------------------------------
 My strawpage is a point & click adventure game, check if out if you want :>D
+- ------------------------------------------------------------------------------------------------------
 reminder that the new rules are BS and it'll probably take about a year to get the gimmicks xd 
 - ------------------------------------------------------------------------------------------------------
 Btw this is Me and faggot
