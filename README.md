@@ -8,7 +8,8 @@ My strawpage is a point & click adventure game, check if out if you want :>D
 - ------------------------------------------------------------------------------------------------------
 Btw this is Me and faggot
 
-![8qg8lvm0](https://github.com/user-attachments/assets/764937c8-cb39-4e37-804c-5fb2c1a45f30)
+![image](https://github.com/user-attachments/assets/d3a147c0-a723-458b-875a-43a575290384)
+
 
 
 
